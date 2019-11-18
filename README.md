@@ -1,4 +1,4 @@
-[lLive](https://teamp0is0n.github.io/RishikaNew/)
+[Play Live](https://teamp0is0n.github.io/RishikaNew/)
 
 ## Falling Words
 
